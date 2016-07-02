@@ -1,3 +1,3 @@
 # crispy-barnacle
 hey there guys!
-in need or some gaming experts or something.
+in need for some gaming experts or something.
